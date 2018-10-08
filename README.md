@@ -1,4 +1,4 @@
-<h4> Kobitakathan is all about charles bukoski</h4>
+<h4> Kobitakathan is all about Charles Bukowski</h4>
 <h1>Charles Bukowski, American Author</h1>
 <h3>His life, work and influence on modern literature</h3> 
 <p>A cult figure, novelist, short-story writer, poet and journalist. One of the greatest writers to come out of Los Angeles, many consider Bukowski to be a true voice of the city of angels. Bukowski, also known as "Buk," wrote with raw emotion and painted with words. His canvas was Los Angeles. Not the glitter though. His Los Angeles was the stench of alley-ways, broken dreams, broken hearts, winos and of course...the horse track.
